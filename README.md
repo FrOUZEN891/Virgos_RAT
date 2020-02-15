@@ -1,3 +1,6 @@
+
+
+
 Ahoj všetci!
 Najnovšie RAT od tureckých priateľov.
 Našiel toto zviera na cudzom kopci.
