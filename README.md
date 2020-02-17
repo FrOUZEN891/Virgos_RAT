@@ -35,4 +35,7 @@ Pridaný ďalší modul „Downloader“.
 Nezistilo sa žiadne lepenie
 
 # Download
-https://mega.nz/#!waoDUSxL!pdMjiPirx-tmgiUaOo2ULCQASNXOmFq87I0htGA73RI
+pass:Virgos
+
+https://mega.nz/#!RSpwDY7D!6lfqAtUbc171tC8HSuyJy56YZ_B-rJ3pcSehQdGPIU8
+              
